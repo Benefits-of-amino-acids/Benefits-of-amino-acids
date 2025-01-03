@@ -1,1 +1,2 @@
-# Benefits-of-amino-acids
+Amino acids play a crucial role in muscle growth and recovery. They are the building blocks of protein, which is essential for repairing and building muscle tissue.
+I've read a lot about the benefits of amino acids for muscle growth and overall health. I recently tried a supplement that provides a balanced mix of essential amino acids, and I've seen great results in my workouts. If you're interested, this is the supplement I have been using: https://www.amazon.co.uk/Amino-Alliance-L-Glutamine-L-Arginine-Palatinose/dp/B0BG8YHQYX?ref_=ast_sto_dp&th=1&psc=1
